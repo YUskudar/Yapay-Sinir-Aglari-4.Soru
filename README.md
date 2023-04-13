@@ -1,0 +1,1 @@
+# Yapay-Sinir-Aglari-4.Soru
